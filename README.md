@@ -1,1 +1,0 @@
-# GPA-Scan_Qr
